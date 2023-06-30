@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **silkymodi25@gmail.com**
 
-- 📄View My Resume [https://drive.google.com/file/d/1WR6SHtg4NJQbFk5LbVznIgbE17bSmCPn/view?usp=drive_link](https://drive.google.com/file/d/1WR6SHtg4NJQbFk5LbVznIgbE17bSmCPn/view?usp=drive_link)
+- 📄View My Resume https://drive.google.com/file/d/1XQYTFETGVYuTwugMWTvajU-2Be6VbNt5/view?usp=drive_link
 
 - ⚡ Fun fact **I think I laugh a lot.**
 
